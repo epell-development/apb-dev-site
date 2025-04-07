@@ -1,4 +1,4 @@
 This site is protected from being copied under the Australian Copyright ACT. 
-©️ APB - 2024. All rights reserved.
+©️ epell Development LTD. - 2025. All rights reserved.
 
-Created by epell development (https://www.epelldevelopment.xyz)
+Created by epell development LTD. (https://www.epelldevelopment.xyz)
